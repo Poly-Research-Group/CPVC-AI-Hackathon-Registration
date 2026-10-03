@@ -1,1 +1,0 @@
-# CPVC-AI-Hackathon-Registration
